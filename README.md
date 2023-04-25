@@ -14,13 +14,14 @@ Bem-vindo à Nyl Imóveis. Ao acessar e usar o nosso serviço, você concorda co
 
 5.Cancelamento: Em caso de desistência do proprietário em vender o imóvel, será necessário informar a Imobiliária com antecedência através dos canais de serviço para o cancelamento da divulgação.
 
-E-mail: newimobpocos@gmail.com;
+E-mail: newimobpocos@gmail.com
 
-Telefone: (35) 98865-0150; (35) 99914-3966;
+Telefone: (35) 98865-0150; (35) 99914-3966
 
-Escritório: Rua Piauí, 47 - Poços de Caldas;
+Escritório: Rua Piauí, 47 - Poços de Caldas
 
 Ao concordar com os termos e condições da Imobiliária, o proprietário autoriza a captura e divulgação das informações do imóvel nos canais de venda oferecidos pela Imobiliária. Salvo quando expressamente discriminado a oferta apenas pelos corretores no ato do cadastro do imóvel.
 
 2023
-CNPJ 24.345.851-0001/34;
+
+CNPJ 24.345.851-0001/34
