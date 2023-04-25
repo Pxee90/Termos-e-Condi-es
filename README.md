@@ -20,6 +20,7 @@ Telefone: (35) 98865-0150; (35) 99914-3966;
 
 Escritório: Rua Piauí, 47 - Poços de Caldas;
 
-CNPJ 24.345.851-0001/34;
-
 Ao concordar com os termos e condições da Imobiliária, o proprietário autoriza a captura e divulgação das informações do imóvel nos canais de venda oferecidos pela Imobiliária. Salvo quando expressamente discriminado a oferta apenas pelos corretores no ato do cadastro do imóvel.
+
+2023
+CNPJ 24.345.851-0001/34;
