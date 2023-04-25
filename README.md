@@ -6,7 +6,7 @@ Bem-vindo à Nyl Imóveis. Ao acessar e usar o nosso serviço, você concorda co
 
 1.Compromisso de privacidade: Nós valorizamos a privacidade dos nossos clientes e proprietários. Todas as informações fornecidas por você serão mantidas em sigilo e protegidas de acordo com as leis aplicáveis. Nós não compartilhamos informações pessoais com terceiros sem o seu consentimento.
 
-2.Propriedades à venda: A Nyl imóveis captura imóveis de proprietários pela internet exclusivamente para venda, não trabalhamos com aluguel. A informação em nosso site é atualizada regularmente, mas pode estar sujeita a alterações sem aviso prévio.
+2.Propriedades à venda: A Nyl Imóveis captura imóveis de proprietários pela internet exclusivamente para venda, não trabalhamos com aluguel. A informação em nosso site é atualizada regularmente, mas pode estar sujeita a alterações sem aviso prévio.
 
 3.Comissão: Nossa comissão sobre as vendas é de 5%. O vendedor concorda em pagar a comissão à Nyl Imóveis no momento da conclusão da venda.
 
