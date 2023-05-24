@@ -14,6 +14,8 @@ Bem-vindo à Nyl Imóveis. Ao acessar e usar o nosso serviço, você concorda co
 
 5.Cancelamento: Em caso de desistência do proprietário em vender o imóvel, será necessário informar a Imobiliária com antecedência através dos canais de serviço para o cancelamento da divulgação.
 
+6.Exclusividade: O contratante confirma que não possui nenhum contrato de exclusividade com outra imobiliária e não existem impedimentos para a realização das atividades de divulgação e venda pelos contratados, sendo de inteira responsabilidade do contratante esta declaração.
+
 E-mail: newimobpocos@gmail.com
 
 Telefone: (35) 98865-0150; (35) 99914-3966
